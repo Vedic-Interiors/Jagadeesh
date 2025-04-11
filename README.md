@@ -1,1 +1,1 @@
-# Jagadeesh
+Vedic Interiors
